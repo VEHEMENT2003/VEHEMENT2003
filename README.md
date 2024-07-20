@@ -23,7 +23,7 @@ Machine Learning model development and deployment
 Feel free to reach out to me via:
 
 Email: [jadkarvrushabh@gmail.com]
-LinkedIn: []
+LinkedIn: [https://www.linkedin.com/in/vrushabh-jadkar-9249ba250/]
 
 😄 Pronouns
 He/Him
