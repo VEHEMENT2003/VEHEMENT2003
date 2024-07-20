@@ -22,9 +22,9 @@ Machine Learning model development and deployment
 📫 How to Reach Me
 Feel free to reach out to me via:
 
-Email: [your-email@example.com]
-LinkedIn: [Your LinkedIn Profile]
-Twitter: [@VEHEMENT2003]
+Email: [jadkarvrushabh@gmail.com]
+LinkedIn: []
+
 😄 Pronouns
 He/Him
 ⚡ Fun Fact
